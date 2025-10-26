@@ -1,5 +1,5 @@
 # Cassie Ephrem Climate Claims
-__Article 1.“Rebuttal to: ‘2023 Marine Heatwaves Unprecedented and Potentially Signal a Climate Tipping Point’”__
+Article 1.“Rebuttal to: ‘2023 Marine Heatwaves Unprecedented and Potentially Signal a Climate Tipping Point’”
  URL:https://wattsupwiththat.com/2025/07/26/rebuttal-to-2023-marine-heatwaves-unprecedented-and-potentially-signal-a-climate-tipping-point/
 
 Summary of the claim: The article argues that headlines claiming 2023 marine heatwaves are “unprecedented” or indicate a “signal a climate tipping point” are actually exaggerated. It also discusses how they may be politically motivated, and want to send the message across without context with scientific data.
