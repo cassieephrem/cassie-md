@@ -1,2 +1,1 @@
-# cassie-md
-This is my climate claims assignment
+# Cassie Ephrem Climate Claims
